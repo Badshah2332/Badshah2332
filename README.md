@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Badshah2332
+- 👀 I’m interested in ...
+- 🌱 I’m currently working on..Service Quality Specialist
+- 💞️ I’m looking to collaborate on ...Anything interesting
